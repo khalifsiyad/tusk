@@ -1,1 +1,7 @@
 # tusk
+chicken fry 
+
+
+
+
+thanks
